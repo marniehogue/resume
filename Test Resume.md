@@ -1,7 +1,7 @@
 Marnie Hogue
 ===============
 
-_206.291.3934 ~ mnhogue@comcast.net ~ www.github.com/marniehogue_
+_206.291.3934 ~ mnhogue@comcast.net ~ datatodesign.wordpress.com
 
 Work Experience
 -------------------------
